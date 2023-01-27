@@ -1,0 +1,3 @@
+- He/Him
+- Some kind of nerd
+- I love fictional men
